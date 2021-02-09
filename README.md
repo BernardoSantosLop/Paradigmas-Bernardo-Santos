@@ -1,0 +1,1 @@
+# Paradigmas-Bernardo-Santos
